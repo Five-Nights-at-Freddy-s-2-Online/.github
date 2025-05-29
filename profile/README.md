@@ -2,6 +2,8 @@
 
 **Five Nights at Freddy’s 2 Online** is not just a game—it’s an **epic, heart-pounding, and legendary horror survival** challenge that will test your nerves, reflexes, and wits. As the **new night guard** of the notorious Freddy Fazbear's Pizza, your mission is simple: **Survive until 6 AM.** But in this **deadly 3D survival simulator**, nothing is ever that easy.
 
+## <a href="https://1kb.link/m1sZEz">👉 Click To Play Five Nights at Freddy’s 2 Unblocked 👈</a>
+
 ---
 
 ### 🎮 What is Five Nights at Freddy’s 2 Online?
